@@ -1,4 +1,4 @@
-#PG News : Free Laravel Website Templates Free Download 
+#PG News : Free Laravel newspaper Website Templates Free Download 
 
 This is Free Templates
 you can download free and use it 
